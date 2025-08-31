@@ -1,0 +1,1 @@
+# tokshopr-privacidade
